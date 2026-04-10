@@ -10,38 +10,38 @@ Here you’ll find **active, real, and updated girls Telegram group links** wher
 
 ### 💬 Friendship & Chat Groups  
 👉 [Join Now](https://t.me/+FriendGroup01)  
-👉 [Join Now](https://t.me/+FriendGroup02)  
-👉 [Join Now](https://t.me/+FriendGroup03)  
-👉 [Join Now](https://t.me/+FriendGroup04)  
-👉 [Join Now](https://t.me/+FriendGroup05)  
+👉 [Join Now](https://t.me/joinchat/Z6aQI1_4DCZmNGJk)  
+👉 [Join Now](https://t.me/joinchat/Qttduli_XCa0zraaLBsjQg)  
+👉 [Join Now](https://telegram.me/perfectmatedating)  
+👉 [Join Now](https://telegram.me/matchv)  
 
 ### 📚 Study & Learning Groups  
-👉 [Join Now](https://t.me/+StudyGirls01)  
+👉 [Join Now](https://telegram.me/perfectmatedating)  
 👉 [Join Now](https://t.me/+StudyGirls02)  
-👉 [Join Now](https://t.me/+StudyGirls03)  
+👉 [Join Now](https://telegram.me/matchv)  
 👉 [Join Now](https://t.me/+StudyGirls04)  
-👉 [Join Now](https://t.me/+StudyGirls05)  
+👉 [Join Now](https://t.me/joinchat/Z6aQI1_4DCZmNGJk)  
 
 ### 💄 Fashion & Beauty Groups  
-👉 [Join Now](https://t.me/+FashionGirls01)  
-👉 [Join Now](https://t.me/+FashionGirls02)  
+👉 [Join Now](https://telegram.me/perfectmatedating)  
+👉 [Join Now](https://telegram.me/matchv)  
 👉 [Join Now](https://t.me/+FashionGirls03)  
-👉 [Join Now](https://t.me/+FashionGirls04)  
-👉 [Join Now](https://t.me/+FashionGirls05)  
+👉 [Join Now](https://telegram.me/matchv)  
+👉 [Join Now](https://t.me/joinchat/Qttduli_XCa0zraaLBsjQg)  
 
 ### ✈️ Travel & Lifestyle Groups  
-👉 [Join Now](https://t.me/+TravelGirls01)  
-👉 [Join Now](https://t.me/+TravelGirls02)  
+👉 [Join Now](https://telegram.me/perfectmatedating)  
+👉 [Join Now](https://telegram.me/matchv)  
 👉 [Join Now](https://t.me/+TravelGirls03)  
-👉 [Join Now](https://t.me/+TravelGirls04)  
-👉 [Join Now](https://t.me/+TravelGirls05)  
+👉 [Join Now](https://t.me/joinchat/Qttduli_XCa0zraaLBsjQg)  
+👉 [Join Now](https://t.me/joinchat/Qttduli_XCa0zraaLBsjQg)  
 
 ### 🎉 Fun & Entertainment Groups  
-👉 [Join Now](https://t.me/+FunGirls01)  
+👉 [Join Now](https://t.me/joinchat/Qttduli_XCa0zraaLBsjQg)  
 👉 [Join Now](https://t.me/+FunGirls02)  
-👉 [Join Now](https://t.me/+FunGirls03)  
+👉 [Join Now](https://t.me/joinchat/Qttduli_XCa0zraaLBsjQg)  
 👉 [Join Now](https://t.me/+FunGirls04)  
-👉 [Join Now](https://t.me/+FunGirls05)  
+👉 [Join Now](https://t.me/joinchat/Z6aQI1_4DCZmNGJk)  
 
 ---
 
