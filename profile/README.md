@@ -76,12 +76,12 @@ Keep visiting for more latest Telegram group links
 
 ## related group
 
-telegram malayalam group link
-mallu telegram group link
-tamil telegram group link
-telegram group link malayalam
-18+ telegram group link active
-telegram punjabi movie group link
-telegram movie group link
-telegram malayalam movie group link
+- telegram malayalam group link
+- mallu telegram group link
+- tamil telegram group link
+- telegram group link malayalam
+- 18+ telegram group link active
+- telegram punjabi movie group link
+- telegram movie group link
+- telegram malayalam movie group link
 
